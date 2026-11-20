@@ -1,0 +1,1 @@
+# Plant-E-Commerce-Platform-Integrated-with-AI-Powered-Disease-Detection-and-AI-Recommendations
